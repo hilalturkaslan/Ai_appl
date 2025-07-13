@@ -1,2 +1,2 @@
-ai app case study
+ai application case study
 
