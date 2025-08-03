@@ -1,2 +1,2 @@
-ai application case study
+ai application is a ai case study
 
