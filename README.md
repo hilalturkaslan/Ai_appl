@@ -1,2 +1,2 @@
-ai application is for done ai case study
+ai application is for done ai sample case study
 
