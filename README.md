@@ -1,2 +1,2 @@
-ai application is ai a for do it sample case study
+ai application is ai a for do make then case study
 
