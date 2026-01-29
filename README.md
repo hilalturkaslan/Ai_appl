@@ -1,2 +1,2 @@
-ai application is ai a for done make case study
+ai application is a for done make incloude ai case study
 
